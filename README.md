@@ -38,6 +38,11 @@ For educational purposes only, e.g. refer to this list to check if you are being
 
  - Tuov/Toouv (two of)
  - Bofa (both of)
+ - Mile (my left)
+   > do you remember that famous quote from 8 Mile?
+   > > which one?
+   >
+   > you just 8 mileft nut LMAO
  - Miphat (my fat)
  - Tipodiss (tip of this)
 
