@@ -31,7 +31,7 @@ For educational purposes only, e.g. refer to this list to check if you are being
  - CDs (see deez)
  - Lee Ghandi (partially) (lick on deez)
  - Rubondese (rub on deez)
- - Suganese (suck on deez)
+ - Sugandese (suck on deez)
  - Bophides (both of deez)
 
 ### Describes quantity or quality of deez nuts
