@@ -70,6 +70,8 @@ For educational purposes only, e.g. refer to this list to check if you are being
  - Alpaca (I'll pack a)
  - Tape (tape deez nuts to your)
  - Nuddinyore (nut in your)
+ - Disperra (this pair o' nuts)
+ - Candice (can this dick fit)
 
 
 ### Yo mama
