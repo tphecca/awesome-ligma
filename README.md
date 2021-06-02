@@ -71,7 +71,9 @@ For educational purposes only, e.g. refer to this list to check if you are being
  - Tape (tape deez nuts to your)
  - Nuddinyore (nut in your)
 
-
 ### Yo mama
 
  - Marmalade (mama laid)
+
+### Miscellanious
+ - Maween (Mah weiner)
