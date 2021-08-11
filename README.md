@@ -61,6 +61,7 @@ For educational purposes only, e.g. refer to this list to check if you are being
  - Cho con (choke on)
  - Sipdiss (sip this)
  - Sloberon (slobber on)
+ - Tennessee (see deez, deez is replaceable)
 
 ### Implying action using deez nuts / dis dique
 
