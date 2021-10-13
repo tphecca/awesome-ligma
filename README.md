@@ -43,6 +43,11 @@ For educational purposes only, e.g. refer to this list to check if you are being
    > > which one?
    >
    > you just 8 mileft nut LMAO
+ - Myra (my right)
+   > Ask Myra.
+   > > Who's Myra?
+   >
+   > My right nut.
  - Miphat (my fat)
  - Tipodiss (tip of this)
 
