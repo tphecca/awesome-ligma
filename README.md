@@ -36,7 +36,8 @@ For educational purposes only, e.g. refer to this list to check if you are being
  - Havel (Have a look)
   > It's a shame that in DS lore. 
   > > Who the hell is is Havel?
-  > Have a look at deez nuts
+  >
+  > Have a look at deez nuts lol
 ### Describes quantity or quality of deez nuts
 
  - Tuov/Toouv (two of)
