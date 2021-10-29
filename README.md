@@ -33,6 +33,11 @@ For educational purposes only, e.g. refer to this list to check if you are being
  - Rubondese (rub on deez)
  - Sugandese (suck on deez)
  - Bophides (both of deez)
+ - Havel (Have a look)
+  > It's a shame that in DS lore Havel died of ligma. 
+  > > Who the hell is is Havel?
+  >
+  > Have a look at deez nuts lol
 
 ### Describes quantity or quality of deez nuts
 
