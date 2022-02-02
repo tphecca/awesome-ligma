@@ -50,8 +50,9 @@ For educational purposes only, e.g. refer to this list to check if you are being
 
  - Wiremouth (why your mouth)
  - Wilma (will my)
- - Have you ever played "Sea of Thieves" (video game)
-    - See if these nuts fit in your mouth.
+ - Sea of Thieves (see if these)
+   > Have you ever played "Sea of Thieves"?
+   > See if these nuts fit in your mouth
 
 ### Insisting other party's action on deez nuts
 
