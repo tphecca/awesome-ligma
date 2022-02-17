@@ -61,6 +61,13 @@ For educational purposes only, e.g. refer to this list to check if you are being
  - Cho con (choke on)
  - Sipdiss (sip this)
  - Sloberon (slobber on)
+ - Haywood (ya blow me)
+```
+> x: Do you know Heywood?
+> y: Who is Heywood?
+> x: Heywood ya blow me
+```
+
 
 ### Implying action using deez nuts / dis dique
 
