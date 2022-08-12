@@ -24,6 +24,7 @@ For educational purposes only, e.g. refer to this list to check if you are being
  - Cupma (cup mah)
  - Nibelma (nibble mah)
  - Ramma (ram mah)
+ - Wilma (will mah)
 
 ### Includes "deez"
 
