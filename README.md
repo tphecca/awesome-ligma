@@ -1,7 +1,3 @@
-# awesome-ligma [![Awesome](https://cdn.rawgit.com/sindresorhus/awesome/d7305f38d29fed78fa85652e3a63e154dd8e8829/media/badge.svg)](https://github.com/sindresorhus/awesome)
-
-Exhaustive list of ligma jokes, attempted to sort by most to least usable in usual conversation by category.
-For educational purposes only, e.g. refer to this list to check if you are being ligma'd.
 
 ## Non-vulgar
 
